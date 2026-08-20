@@ -20,6 +20,9 @@ His publications form the **theoretical core of a new horizon in contemporary ps
 
 **“The psyche is not a mechanism to be explained, but a field to be listened to.  
 APP emerges precisely here: at the point where reductionism collapses and lived experience rises again to speak with its full, undivided voice.”**
+# Extended Description
+
+Dr. Vincenzo Bumbalo is the founder of Analytical Phenomenological Psychology (APP), a paradigm that restores the psyche to its full symbolic and experiential depth. His work rejects all forms of reductionism, treating the psyche not as a mechanism to decode but as a living, embodied field to be listened to. Integrating symbol, lived experience, language, and corporeality, his theoretical contributions open a new horizon for contemporary psychology—one in which the undivided voice of experience becomes the central ground of inquiry. His publications form the core architecture of this emerging school of thought, establishing APP as a rigorous, visionary framework for understanding the human psyche.
 
 # © Copyright Notice
 
