@@ -11,10 +11,11 @@
 
 Clifton Park, New York State, USA
 
+## Founder’s Profile
 
 **Dr. Vincenzo Bumbalo** is the **founder of Analytical Phenomenological Psychology (APP)**, a school of thought that integrates **symbol, experience, language, and embodiment** into a unified paradigm.  
 His work explores the psyche as a **symbolic‑phenomenological field**, standing firmly against all forms of reductionism.  
-His publications form the **theoretical core of a new horizon in contemporary psychology**.
+His publications form the **theoretical core of a new horizon in contemporary psychology establishing APP as a rigorous and visionary framework for understanding the human psyche.**.
 
 # Foundational Statement
 
