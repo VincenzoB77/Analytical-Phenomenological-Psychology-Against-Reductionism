@@ -38,8 +38,7 @@ APP offers a rigorous, visionary, and integrative framework for understanding th
 
 # © Copyright Notice
 
-© 2026 Dr. Vincenzo Bumbalo.  
-All rights reserved.
+© 2026 Dr. Vincenzo Bumbalo All rights reserved..  
 
 This work is the intellectual property of **Dr. Vincenzo Bumbalo**, founder of **Analytical Phenomenological Psychology (APP)**.  
 No part of this material may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the author.
